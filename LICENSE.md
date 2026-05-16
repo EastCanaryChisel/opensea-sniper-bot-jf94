@@ -1,4 +1,4 @@
-# 
+# professional opensea sniper bot | collection-scanning + gas-fee-estimation offers the most advanced opensea sniper bot, with collection-scanning and gas-fee-estimation. Ideal for
 
 
 
